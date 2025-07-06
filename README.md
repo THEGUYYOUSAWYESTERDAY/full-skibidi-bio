@@ -43,4 +43,16 @@ yoasobi
 
 ,
 
+may accidentally cover pony
+
+plate frisbee
+
+sorry if i say offensive things, not sigma
+
+the government, they work with the labubus
+
+beware
+
+,
+
 that is all i will email to the postbox (i think)
